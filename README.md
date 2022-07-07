@@ -2,7 +2,7 @@ edit
 
 # Assalamu-alaykum-world
 
-Dukungan yang semoga dapat disebarluaskan sampai kepelosok pelosok
+Dukungan yang semoga dapat disebarluaskan sampai kepelosok pelosok negeri
 Http://peduli.islamicity.tv
 
 Bismillahirrahmaanirrahiim ...
